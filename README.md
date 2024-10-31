@@ -1,1 +1,1 @@
-# Segundo-Parcial
+Juan Sebastian Gonzalez Alvarez
